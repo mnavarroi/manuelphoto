@@ -1,1 +1,1 @@
-# manuelphoto
+# Manuel Navarro Photography Site
